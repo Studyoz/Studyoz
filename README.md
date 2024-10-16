@@ -1,2 +1,2 @@
-99 bottles of a whiskey
+99 bottles of whiskey
 'Хуиски'
